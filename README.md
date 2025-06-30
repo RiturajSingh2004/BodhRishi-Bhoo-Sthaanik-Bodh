@@ -1,1 +1,1 @@
-# BodhRishi-Bhoo-Sthaanik-Bodh
+# BodhRishi: Bhoo-Sthaanik-Bodh
